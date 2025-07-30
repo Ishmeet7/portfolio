@@ -1,4 +1,4 @@
 # Ishmeet7.github.io
 
-##fbvfbfvdv
-bjsnbdxjanskj
+##education
+mechanical
