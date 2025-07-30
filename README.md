@@ -1,4 +1,4 @@
 # Ishmeet7.github.io
 
-##education
+## education
 mechanical
